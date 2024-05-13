@@ -1,2 +1,0 @@
-# nostrorgin.github.io
-Website
